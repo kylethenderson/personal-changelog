@@ -11,3 +11,10 @@ Therefore, my main goal for this challenge is to take time everyday to learn abo
 
   Completed - 7 Days of Calm - Day 1 - Basics of Mindfulness - Calm App
 
+#### Tuesday 11/5
+
+  Completed - How to Meditate - Day 2 Homebase - Calm App
+
+  Completed - 7 Days of Calm - Day 2 - Returning to the Here and Now - Calm App
+
+  Started Wherever You Go, There You Are: Mindfulness Meditation in Everyday Life by Jon Kabat-Zinn
