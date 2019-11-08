@@ -25,4 +25,12 @@ Therefore, my main goal for this challenge is to take time everyday to learn abo
 
   completed - day 3/7 - paying attention - calm app
 
-  continue - Wherever you go, there you are  
+  continue - Wherever you go, there you are 
+
+#### Thursday 11/7
+  
+  Completed - Day 4/30 - Inner Smoothness - calm app
+
+  Completed - day 4/7 - pulling out of autopilot - calm app
+
+  Continue - wherever you go, there you are
