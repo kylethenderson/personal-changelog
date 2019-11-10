@@ -34,3 +34,9 @@ Therefore, my main goal for this challenge is to take time everyday to learn abo
   Completed - day 4/7 - pulling out of autopilot - calm app
 
   Continue - wherever you go, there you are
+
+#### Saturday 11/8
+
+  Completed day 5/30 - A Habit You actuall want - calm app
+
+  Completed [Anapana Meditation](https://www.youtube.com/watch?v=OfcL61kVIwg)
