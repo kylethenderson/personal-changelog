@@ -35,8 +35,13 @@ Therefore, my main goal for this challenge is to take time everyday to learn abo
 
   Continue - wherever you go, there you are
 
-#### Saturday 11/8
+#### Saturday 11/9
 
   Completed day 5/30 - A Habit You actuall want - calm app
 
   Completed [Anapana Meditation](https://www.youtube.com/watch?v=OfcL61kVIwg)
+
+#### Sunday 11/10
+
+    Completed day 6/30 - Concentration Gym - calm app
+
