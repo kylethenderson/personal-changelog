@@ -45,3 +45,7 @@ Therefore, my main goal for this challenge is to take time everyday to learn abo
 
     Completed day 6/30 - Concentration Gym - calm app
 
+#### Monday 11/11
+
+    Complete day 7/30 - the sweet spot - calm app
+
