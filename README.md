@@ -49,3 +49,6 @@ Therefore, my main goal for this challenge is to take time everyday to learn abo
 
     Complete day 7/30 - the sweet spot - calm app
 
+#### Wednesday 11/13
+
+    Complete day 8/30 - even flow - calm app
