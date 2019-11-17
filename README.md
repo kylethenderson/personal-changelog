@@ -52,3 +52,11 @@ Therefore, my main goal for this challenge is to take time everyday to learn abo
 #### Wednesday 11/13
 
     Complete day 8/30 - even flow - calm app
+
+#### Saturday 11/16
+
+    Complete day 9/30 - into the stillpoint - calm app
+
+    the end of this week was a struggle to specifically dedicate the time to this challenge due to work and other personal responsibilities. 
+
+    tomorrow I plan to rest, recoup, and regain focus on carving out time each day to commit to learning and practicing meditation. 
