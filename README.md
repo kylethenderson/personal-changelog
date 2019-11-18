@@ -60,3 +60,9 @@ Therefore, my main goal for this challenge is to take time everyday to learn abo
     the end of this week was a struggle to specifically dedicate the time to this challenge due to work and other personal responsibilities. 
 
     tomorrow I plan to rest, recoup, and regain focus on carving out time each day to commit to learning and practicing meditation. 
+
+#### Sunday 11/17
+
+    Completed day 10/30 - eye of the hurrican - calm app
+
+    Continue - wherever you go, there you are
