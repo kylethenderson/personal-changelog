@@ -63,6 +63,10 @@ Therefore, my main goal for this challenge is to take time everyday to learn abo
 
 #### Sunday 11/17
 
-    Completed day 10/30 - eye of the hurrican - calm app
+    Completed day 10/30 - eye of the hurricane - calm app
 
     Continue - wherever you go, there you are
+
+#### Monday 11/18
+
+    Completed day 11/30 - electric clarity - calm app
